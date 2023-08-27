@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sawoll
-- 👀 I just have started programming
+- 👀 
 - 🌱 
 - 💞️ 
 - 📫  
